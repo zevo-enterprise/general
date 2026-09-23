@@ -4,6 +4,12 @@ Hallucination - Psychology alone is not enough; to return to following norms of 
 
 ---
 
+## Medicinal Herbs™
+
+<h3>We support the medicinal use of cannabis leaves, coca leaves, and coleus barbatus leaves (boldo) for teas and aromatic infusions (Incense), but we oppose the hallucinogenic effects caused by smoking the plant.</h3>
+
+---
+
 Obs: The way out of the exit question is Nathanael Banach Elohim ("Door of Mercy Adonai"),The China Blue
 Or go ahead and go crazy Contradiction the Baphomet.
 
