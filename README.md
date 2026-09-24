@@ -124,3 +124,9 @@ Or go ahead and go crazy Contradiction the Baphomet.
 <h3>(NOTE - DAVADA BENI ELOHIM) </h3>
 
 ---
+
+## Try to capture me, here and commander Davada Beni Elohim - Zaita
+
+<h3> Put my name on the blacklist, Davada Beni Elohim/Zaita, because your name is on my list of the dead. (All Enemies) </h3>
+
+---
